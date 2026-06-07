@@ -1,4 +1,4 @@
-[![d7957fc98ab2ad869903997ab04ab52b.jpg](https://i.postimg.cc/sXyts29p/d7957fc98ab2ad869903997ab04ab52b.jpg)](https://postimg.cc/8FKybNY5)
+[![a0183a6f1a9316d882d060aa648d26ba.jpg](https://i.postimg.cc/FRHzJDVP/a0183a6f1a9316d882d060aa648d26ba.jpg)](https://postimg.cc/06hPTG3m)
 
-[my hope](https://github.com/jiraiki)
-that sleeps inside me! 𖦹🍀୭ ˚. ᵎᵎ｡🧷
+[૮꒰˶ᵔ ᗜ ᵔ˶꒱ა](https://github.com/jiraiki) ─★ 
+[rentry](https://rentry.co/strvbykim)
