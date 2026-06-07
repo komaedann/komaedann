@@ -2,3 +2,5 @@
 
 [૮꒰˶ᵔ ᗜ ᵔ˶꒱ა](https://github.com/jiraiki) ─★ 
 [rentry](https://rentry.co/strvbykim)
+
+[![15370777deab550a302263349242.jpg](https://i.postimg.cc/QCnfr40n/15370777deab550a302263349242.jpg)](https://postimg.cc/64nrr0sd)
